@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am a Student 
+🧑‍🎓I am a student <br>📝Check out my resume here - <br>📧Reach out me at - keerthirajkr7@gmail.com
 
 
 ## 🌐 Socials:

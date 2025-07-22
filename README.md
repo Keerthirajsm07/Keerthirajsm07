@@ -1,5 +1,5 @@
 # 💫 About Me:
-🧑‍🎓 I'm Currently learning Machin Learning and AI  <br>📔 All my projects available on Github - <br>✉️ Reach out me at - <br>📜 Check out my Resume - <br>🌐 Data Analytics 
+🧑‍🎓 I'm Currently learning Machin Learning and AI  <br>📔 All my projects available on Github - [GitHub]([url](https://github.com/Keerthirajsm07)) <br>✉️ Reach out me at - <br>📜 Check out my Resume - <br>🌐 Data Analytics 
 
 
 ## 🌐 Socials:
